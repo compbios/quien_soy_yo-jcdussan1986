@@ -1,9 +1,4 @@
 
-# Fabián Gil
-
-Soy **colombiano**, 
-
-
 # Quien soy yo
 
 * Jenny Carolina Dussan Niño 
